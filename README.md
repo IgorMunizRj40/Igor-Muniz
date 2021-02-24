@@ -2,7 +2,7 @@
 
 ## Olá pessoal 👋
 Brasileiro, pai de família buscando me atualizar nesse mundo de informações.
-Apaixonado por tecnologias
+Apaixonado por tecnologias 
 E-mail igor.galdinomuniz@gmail.com
 Linkedin  https://www.linkedin.com/in/igor-muniz-b410301a7/
 
